@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marianadasilvaribeiro
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning paquerar
 - 💞️ I’m looking to collaborate on visconde/cavalheiro/esperto
 - 📫 How to reach me .
 - 😄 Pronouns: elu/delu

@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marianadasilvaribeiro
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...visconde/cavalheiro/esperto
 - 🌱 I’m currently learning paquerar
-- 💞️ I’m looking to collaborate on visconde/cavalheiro/esperto
+- 💞️ I’m looking to collaborate on tudo
 - 📫 How to reach me .
 - 😄 Pronouns: elu/delu
 - ⚡ Fun fact: ...
